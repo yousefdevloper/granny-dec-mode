@@ -6,4 +6,4 @@ trying to make granny mod (with thanks to DVloper (IT IS DVloper's PROPERRTY AND
 
 sorry brother if any one comment i will try send the assets 
 
-i didnt becuase the file is large and i think no one will se this😥😥
+i didnt becuase the file is large and i think no one will see this😥😥
